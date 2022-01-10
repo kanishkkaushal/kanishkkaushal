@@ -1,7 +1,10 @@
 ### Hi there 👋
-📫 How to reach me: mail me at Kaushalkanishk7@gmail.com or Dm me on insta : @kanishkkshl \n
-😄 Pronouns: he/him \n
-⚡ Fun fact: Im the center of the universe.(Universe is infinite)
+📫 How to reach me: mail me at Kaushalkanishk7@gmail.com or Dm me on insta : @kanishkkshl 
+
+😄 Pronouns: he/him 
+
+⚡ Fun fact: Im the center of the Universe(Universe is infinite)
+
 
 <!--
 **kanishkkaushal/kanishkkaushal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
