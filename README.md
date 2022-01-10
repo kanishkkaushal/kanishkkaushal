@@ -1,6 +1,6 @@
 ### Hi there 👋
-📫 How to reach me: mail me at Kaushalkanishk7@gmail.com or Dm me on insta : @kanishkkshl
-😄 Pronouns: he/him
+📫 How to reach me: mail me at Kaushalkanishk7@gmail.com or Dm me on insta : @kanishkkshl \n
+😄 Pronouns: he/him \n
 ⚡ Fun fact: Im the center of the universe.(Universe is infinite)
 
 <!--
